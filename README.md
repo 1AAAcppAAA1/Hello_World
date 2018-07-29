@@ -1,5 +1,4 @@
 # Hello_World
-another simple repository
 //Hello World! Starting over after new understandings. I feel like we are all one and I/we are so very close to 
 making something really great. It can only help to include as many willing and able entities into this space, with 
 creative and true hearts. I must admit I do have a little FOMO, but am a pure and hopeful initiate into the unknown,
